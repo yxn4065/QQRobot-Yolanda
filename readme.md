@@ -86,6 +86,6 @@ https://docs.nonebot.dev/
 
 https://docs.go-cqhttp.org/cqcode/#%E8%BD%AC%E4%B9%89
 
-更多内容可添加 2720315937 进行测试,如有疑问请联系超级管理员
+更多内容可添加q 2720315937 进行测试,如有疑问请联系超级管理员
 
 测试qq群:903475050
